@@ -1,1 +1,0 @@
-# uzay-kacisi
